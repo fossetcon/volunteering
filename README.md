@@ -9,7 +9,7 @@ Please [edit](https://github.com/fossetcon/volunteering/edit/master/README.md) t
 
 
 # Day -1 (Wednesday 9/10)
-We need folks to help us get the space setup. We will start at noon and you can join in whenever. We will be providing dinner :)
+We need folks to help us get the space setup and to stuff bags. We will start at noon and you can join in whenever. We will be providing dinner :)
 
 
 # Day 0 (Thursday 9/11)
