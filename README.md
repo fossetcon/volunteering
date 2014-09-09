@@ -16,7 +16,7 @@ We need folks to help us get the space setup and to stuff bags. We will start at
 
 times | pre-lunch | post-lunch |
 :---------------|:-----:|:---:|:---:|:----:
-**registration**  | your name | goes here |
+**registration**  | Tony Becker| Tony Becker |
 
 
 # Day 1 (Friday 9/12)
@@ -29,7 +29,7 @@ times | pre-lunch | post-lunch |
 **Track 3**  | | |
 **Track 4**  | | |
 **Track 5**  | | |
-**Don't care which room**  | | |
+**Don't care which room**  |Tony Becker |Tony Becker |
 **Don't care which room**  | | |
 **Photographer** | | |
 
@@ -44,6 +44,6 @@ times | pre-lunch | post-lunch |
 **Track 3**  | | |
 **Track 4**  | | |
 **Track 5**  | | |
-**Don't care which room**  | | |
+**Don't care which room**  |Tony Becker |Tony Becker |
 **Don't care which room**  | | |
 **Photographer** | | |
